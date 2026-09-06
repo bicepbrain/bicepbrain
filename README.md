@@ -32,7 +32,8 @@ _**[ @𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)**_   　=  　 
 [𝓅ress 4 info](https://pronouns.cc/@mmk)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)
 
 
-<img width="200" height="250" alt="image" src="https://github.com/user-attachments/assets/e9b5248a-d988-4c9c-b5be-1ce58c1cf928" />
+<img width="200" height="250" alt="image" src="https://github.com/user-attachments/assets/e6c3b8d8-f61a-45ad-b76c-e02750915dfa" />
+
 
 <img width="100" height="300" alt="9c17e60565975f9f9d725011d20fe96f-Photoroom" src="https://github.com/user-attachments/assets/f51c5b80-5d60-46b7-889a-d1165fda6948" />
 

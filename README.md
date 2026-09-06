@@ -5,10 +5,6 @@
 <img width="736" height="547" alt="Web_Photo_Editor (8)" src="https://github.com/user-attachments/assets/15613996-dfca-4cd7-8758-14e22571a3e0" />
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=27&duration=4500&pause=986&color=B69A43&center=true&vCenter=true&width=435&lines=%E2%80%9CI+was+going+to+ask+Red+to+Castlecoming%E2%80%A6;but+your+invitation+landed+in+my+lap+instead.%E2%80%9D" alt="Typing SVG" /></a>
-
-
-
 <img width="1280" height="120" alt="616329790-1c9debba-149e-46ea-a631-5d18bb9695d3" src="https://github.com/user-attachments/assets/bd46ed27-f481-4c69-b337-64a074eeb100" />
 
 

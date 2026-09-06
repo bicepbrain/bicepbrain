@@ -36,7 +36,7 @@ I  　want 　to  　barf 　 whenevr 　I  　see 　 him  　.
 
 _**[ @𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)**_   　=  　 𝓂ain  　<3
 
-[𝓅ress 4 info]()⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)
+[𝓅ress 4 info](https://pronouns.cc/@mmk)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)
 
 
 <img width="200" height="250" alt="image" src="https://github.com/user-attachments/assets/e9b5248a-d988-4c9c-b5be-1ce58c1cf928" /> 

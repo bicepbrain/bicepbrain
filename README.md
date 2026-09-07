@@ -24,7 +24,7 @@ I  　want 　to  　barf 　 whenevr 　I  　see 　 him  　.
 
 
 
-_**[ @𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)**_   　=  　 𝓂ain  　<3
+_**[ @𝓌ednesdayaddamsss](https://github.com/wednesdayaddamsss)**_   　=  　 𝓂ain  　<3
 
 <img width="100" height="100" alt="616331399-8f522ef9-9755-4231-8993-16a83a1a8080" src="https://github.com/user-attachments/assets/7f0cb95b-5865-45f4-b1f9-bf7f2d3a5d5c" />
 
